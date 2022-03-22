@@ -1,0 +1,2 @@
+* OGURCHUCK
+* VALENOK
